@@ -1,2 +1,2 @@
-Other GitHub - NickUlrich
+Other GitHub - https://github.com/NickUlrich
 
